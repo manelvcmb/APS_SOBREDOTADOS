@@ -1,0 +1,4 @@
+
+GIBBS SAMPLER
+
+                    APS SOBREDOTADOS
